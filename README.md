@@ -1,4 +1,4 @@
-### Bem vindo ao perfil da NIEH 𝜗୧  :   
+### Bem vindo ao perfil da NOH 𝜗୧  :   
 
 Me chamo _Noemi_ Gomes.
 - Sou estdante do Ensino Médio.
