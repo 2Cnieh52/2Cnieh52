@@ -7,6 +7,6 @@ Me chamo _Noemi_ Gomes.
 
 _Você pode entrar em contato comingo através do meu email_ : ✉
 
-0000109483677sp@al.educaco.sp.gov.br 
+0000109483677sp@al.educacao.sp.gov.br 
 
 ![](https://media.tenor.com/1K602lbDSeIAAAAM/flirty-eyes.gif)
